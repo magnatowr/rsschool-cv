@@ -1,1 +1,1 @@
-# rsschool-cv
+https://magnatowr.github.io/rsschool-cv/cv
